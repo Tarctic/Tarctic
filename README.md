@@ -1,4 +1,4 @@
-I'm Tarctic 🤖
+I'm Tarctic 🤖  
 I like to work on random projects and play video games  
 I'm interested in Data Science, AI, Machine Learning and languages
 
